@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Music & Tech
 - 🌱 I’m currently learning ... Software Developing
 - 💞️ I’m looking to collaborate on ... Music or Ios Apps
-- 📫 How to reach me ...a.c.e_cloudydayz
+- 📫 How to reach me ... @a.c.e_cloudydayz
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
